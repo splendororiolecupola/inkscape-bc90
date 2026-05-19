@@ -1,4 +1,4 @@
-# 
+# professional Affinity Photo PC版 扩展 是最佳 Affinity Photo PC版 扩展，集成 运动追踪 和 布料模拟。安全、可靠、优化，性能最大化。
 
 
 
